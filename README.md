@@ -1,5 +1,2 @@
 # Hover-Logo-Brands
- ![Hovering Logo Instagram]([https://techmaster.vn/resources/image/logo.png](https://i.imgur.com/9KgpJiM.png)https://i.imgur.com/9KgpJiM.png)
- ok
- 
-[IMG]https://i.imgur.com/9KgpJiM.png[/IMG]
+ ![Hovering Logo Instagram]([https://drive.google.com/file/d/1CZakcq8oLUYe-hJwkXKBYGRc349nMqbo/view?usp=sharing)
